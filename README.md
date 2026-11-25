@@ -1,1 +1,1 @@
-Matskuffen – middagsplanlegger. Åpne: https://danili99.github.io/matskuffen/
+Matskuffen – middagsplanlegger. Åpne: https://danili99.github.io/Matskuffen/
